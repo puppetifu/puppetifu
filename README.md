@@ -1,30 +1,34 @@
-⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀ ![](https://64.media.tumblr.com/af6c0a64f76fd8577fe55bdb5174fc36/702ebf6094cc7958-40/s75x75_c1/0cdff8698cbb1c02f34f3e8811f6da69f469cc03.gifv)　 **for** 　 *)*　 *PonyTown*
+⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀ ![](https://64.media.tumblr.com/d4e32f700da059e3550fa062c71cc7b1/93d8bfe30955397e-1d/s75x75_c1/cb4fab626794f0a7f625ec8d1a84a2115932a2ac.gifv)　 **for** 　 *)*　 *PonyTown*
 
 
-⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀![image](https://github.com/user-attachments/assets/54f3bf37-48af-4cbc-921b-04ef7a17551f)
+⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀![image](https://github.com/user-attachments/assets/d6fbcb9a-9895-4797-a725-411023829d0f)
+
 
 ⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀ ⠀⠀                ⠀⠀                    ⠀⠀                ⠀⠀                        ⠀⠀⠀                   
 
-⠀⠀                ⠀⠀                        ⠀⠀⠀            ⠀⠀⠀     ⠀        ⠀      ⠀⠀![image](https://github.com/user-attachments/assets/43d2fbaa-36b3-40d0-9c1c-8ba9d5b89f8e)
+⠀⠀                ⠀⠀                        ⠀⠀⠀            ⠀⠀⠀     ⠀        ⠀      ⠀⠀![image](https://github.com/user-attachments/assets/c704f938-9e37-4172-8400-884a7e250d67)
 
 
 
-⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀ ⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀**Him**   /   **Scara**   /  **Kuniku**  ![](https://64.media.tumblr.com/70aa499432b1d7e680982860cc3b0a99/db7ce6708c01e3ab-e1/s75x75_c1/188272f1a0f75cea0a74b10bdeb076e14d030c69.gifv) They **It** he
+⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀ ⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀**Him**   /   **Scara**   /  **Kuniku**  ![](https://64.media.tumblr.com/6882dce3e2c0219dc7aa9589296b34d5/93d8bfe30955397e-5d/s75x75_c1/ad0e4c2b0ad5e528a54b56a6d6b4cf759c72c21d.gifv)
+ They **It** he
 
 
 
-⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                  ⠀7**teen** . . 18 soon ! ![](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) Puppet + **IDENTITY**issues..
+⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                  ⠀7**teen** . . 18 soon ! ![](https://64.media.tumblr.com/7c20e5869cd740bd8859956b2692ac20/93d8bfe30955397e-35/s75x75_c1/f570288554571b799a07811dd8b4f2f799d5074e.gifv) 
+ Puppet + **IDENTITY**issues..
 
-⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀       ⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀ ⠀Hispanic **...** ![](https://64.media.tumblr.com/eae7463a0e483b009f9bff59e5de9a8c/8851735f23cf5f73-1e/s75x75_c1/f98c602f5b548ccc88a4a8557bb23101095a95ed.gifv) **INFP** . . wandering
+⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀       ⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀ ⠀Hispanic **...** [![](https://64.media.tumblr.com/eae7463a0e483b009f9bff59e5de9a8c/8851735f23cf5f73-1e/s75x75_c1/f98c602f5b548ccc88a4a8557bb23101095a95ed.gifv)](https://64.media.tumblr.com/d4e32f700da059e3550fa062c71cc7b1/93d8bfe30955397e-1d/s75x75_c1/cb4fab626794f0a7f625ec8d1a84a2115932a2ac.gifv) **INFP** . . wandering
 
 
 ⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀   ⠀⠀           ⠀[dni/byi](https://rentry.co/scarasbyi) && [interests !](https://rentry.co/scaras-interests)
 
-⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀⠀⠀                ⠀⠀                                                                                                                         ⠀                          ⠀⠀![](https://i.postimg.cc/4xpG3CxR/Untitled1858-20240724220943.png)
+⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀⠀⠀                ⠀⠀                                                                                                                         ⠀                          ⠀⠀![image](https://github.com/user-attachments/assets/a702a164-adb9-48ff-8efc-9fcba7af7fab)
 
 
 
-⠀⠀                ⠀⠀                        ⠀⠀⠀            ⠀⠀⠀     ⠀        ⠀      ⠀⠀![image](https://github.com/user-attachments/assets/43d2fbaa-36b3-40d0-9c1c-8ba9d5b89f8e)
+
+
 
 
 ⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                        ⠀⠀⠀                        ⠀        ⠀⠀⠀                ⠀⠀                  I don't mind doubles interacting ! I quite enjoy learning
@@ -43,5 +47,6 @@
 
 
 
-⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀⠀![image](https://github.com/user-attachments/assets/e31da481-d77b-49b5-8869-a9efb8aa3124)
+⠀⠀                ⠀⠀                        ⠀⠀⠀     ⠀        ⠀     ⠀    ⠀⠀⠀     ⠀        ⠀⠀⠀     ⠀             ⠀⠀![image](https://github.com/user-attachments/assets/79d6e746-73bb-4bad-9eb3-6afb345803a4)
+
 
